@@ -1,3 +1,0 @@
-# dreamLifeGala
-
-Coming soon template.
